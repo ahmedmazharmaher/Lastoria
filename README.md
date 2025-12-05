@@ -1,2 +1,0 @@
-# Lastoria
-Lastoria B
